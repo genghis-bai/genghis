@@ -1,0 +1,1 @@
+Use simplest way to bridge the gap between single person and the modern IT perspectives.
